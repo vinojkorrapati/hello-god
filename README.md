@@ -1,2 +1,4 @@
 # hello-god
-be cautions
+
+no one watching u
+but be faithful to u
